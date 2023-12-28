@@ -5,7 +5,7 @@
 
 - 💬 I'm interested in **AI/ML**
 
-- 📫 Reach me **kaisin1993@hotmail.com**
+- 📫 Reach me at **kaisin1993@hotmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
